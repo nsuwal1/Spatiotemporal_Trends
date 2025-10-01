@@ -1,6 +1,6 @@
 # Supplementary Information
 
-## Spatiotemporal trends in global-scale oyster norovirus outbreaks: critical review on climate change association
+## Spatiotemporal trends in global-scale oyster norovirus outbreaks: critical review on climate change impact
 **Naresh Suwal, Zhiqiang Deng\***
 
 Department of Civil and Environmental Engineering, Louisiana State University, Baton Rouge, Louisiana 70803, USA  
